@@ -5,3 +5,4 @@ im 15 and i go by any prns!
 YES ill match your energy YES we can c+h YES i wont be dry 😼
 
 interests: drawing, msi, forsaken atm!!
+idk how to add images to this stuid thing i feel like im trying to fly an airplane.
