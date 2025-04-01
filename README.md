@@ -2,7 +2,11 @@ haii i go by burger or ren(ji) if you wanna be friends feel to go up to me and t
 
 im really socially awkward at first so mybad if i make it weird 😓
 im 15 and i go by any prns!
-YES ill match your energy YES we can c+h YES i wont be dry 😼
+YES ill match your energy YES we can c+h (stranger or not idm) YES i wont be dry 😼
+
 
 interests: drawing, msi, forsaken atm!!
-idk how to add images to this stuid thing i feel like im trying to fly an airplane.
+
+also note i will unadd u dont put effort into our friendship sorry!!
+
+dni list: people whos only personality is their partner, if u vent everytime we talk, PEOPOE WHO DONT LIKE MANGOS!1! /nsrs
