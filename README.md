@@ -11,5 +11,4 @@ also note i will unadd u dont put effort into our friendship sorry!!
 
 dni list: homophobes, PEOPOE WHO DONT LIKE MANGOS!1! /nsrs
 
-SIGN MY ATA
-pomegranate.atabook.org
+SIGN MY ATA AND STRAW 🙏🙏
