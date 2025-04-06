@@ -9,4 +9,7 @@ interests: drawing, msi, forsaken atm!!
 
 also note i will unadd u dont put effort into our friendship sorry!!
 
-dni list: people whos only personality is their partner, homophobes, PEOPOE WHO DONT LIKE MANGOS!1! /nsrs
+dni list: homophobes, PEOPOE WHO DONT LIKE MANGOS!1! /nsrs
+
+SIGN MY ATA
+pomegranate.atabook.org
