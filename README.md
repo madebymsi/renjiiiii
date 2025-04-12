@@ -5,3 +5,5 @@ im really socially awkward at first so mybad if i make it weird 😓 (yes u have
 im 15 atm ^_^ i dont know what to really add so feel free to ask anything about me !
 
 interests: msi, forsaken
+
+![alt text](https://imgur.com/a/YmJVS3W)
