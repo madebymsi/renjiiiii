@@ -6,4 +6,4 @@ im 15 atm ^_^ i dont know what to really add so feel free to ask anything about 
 
 interests: msi, forsaken
 
-https://i.imgur.com/F5WEcbY.png
+https://imgur.com/a/YmJVS3W
