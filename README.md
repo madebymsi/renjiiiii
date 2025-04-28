@@ -18,4 +18,4 @@ yes twin we can hug and afk ❤️‍🩹🙏🌹
 
 i have problems that im actively trying to fix and become a better person. iwc iwc iwc iwc
 
-you can take inspos off my skins just not HEAVY inspo
+you can take inspos off my skins just not HEAVY inspo or full on copying
