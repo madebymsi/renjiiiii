@@ -14,6 +14,7 @@ INT LIST: (fandoms) adventure time, to your eternity.
 
 dni list: dry people, homophobes, transphobes, zoophiles, pedos, proshippers, js problematic ppl in general, ppl under 12.
 
+yes twin we can hug and afk ❤️‍🩹🙏🌹
 
 i have problems that im actively trying to fix and become a better person. iwc iwc iwc iwc
 
