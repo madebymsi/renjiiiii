@@ -3,9 +3,10 @@
 </div>
 
 upd 28/04/25
+
 INTERACT WITH CAUTION, MY HUMOUR CAN MAKE SOME PEOPLE UNCOMFORTABLE.
 
-i have a pretty small friends list (below 20) so if i have you friended on pt that means i find you cool and we chill twin ❤️‍🩹❤️‍🩹
+i have a pretty small friends list (below 15) so if i have you friended on pt that means i find you cool and we chill twin ❤️‍🩹❤️‍🩹
 
 im really socially awkward at first so mybad if i make it weird 😓 (yes u have to interact first cs i happen to be shy.)
 
