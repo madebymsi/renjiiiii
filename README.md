@@ -22,8 +22,6 @@ dni list: dry people, homophobes, transphobes, zoophiles, pedos, proshippers, js
 
 yes twin we can hug and afk ❤️‍🩹🙏🌹
 
-i have problems that im actively trying to fix and become a better person. iwc iwc iwc iwc
-
-you can take inspos off my skins just not HEAVY inspo or full on copying, or do it makes me feel like my skin was worth the effort for u to color pick and waste ur time on it.
+you can take inspos off my skins just not HEAVY inspo or full on copying.
 
 can someone pls tell me how to put an image here im cryign ive been tryna do this for a month 💔
