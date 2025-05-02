@@ -23,5 +23,3 @@ dni list: dry people, homophobes, transphobes, zoophiles, pedos, proshippers, js
 yes twin we can hug and afk ❤️‍🩹🙏🌹
 
 you can take inspos off my skins just not HEAVY inspo or full on copying.
-
-can someone pls tell me how to put an image here im cryign ive been tryna do this for a month 💔
