@@ -8,9 +8,7 @@ INTERACT WITH CAUTION, MY HUMOUR CAN MAKE SOME PEOPLE UNCOMFORTABLE.
 
 i have a pretty small friends list (below 15) so if i have you friended on pt that means i find you cool and we chill twin ❤️‍🩹❤️‍🩹
 
-im really socially awkward at first so mybad if i make it weird 😓 (yes u have to interact first cs i happen to be shy.)
-
-im 15 atm ^_^ i dont know what to really add so feel free to ask anything about me !
+im 15 atm!! i dont know what to really add so feel free to ask anything about me !
 
 main interests: msi, forsaken, combat initiation
 
@@ -23,3 +21,6 @@ dni list: dry people, homophobes, transphobes, zoophiles, pedos, proshippers, js
 yes twin we can hug and afk ❤️‍🩹🙏🌹
 
 you can take inspos off my skins just not HEAVY inspo or full on copying.
+
+
+ive noticed i have a social awareness of a potato and that i suck at carrying the convo im sorry if im boring to talk to, im actively trying my best to seem less uninteresting and immature, im really socially awkward at first so mybad if i make it weird ^_^;
