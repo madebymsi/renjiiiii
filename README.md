@@ -6,13 +6,11 @@ upd 28/04/25
 
 INTERACT WITH CAUTION, MY HUMOUR CAN MAKE SOME PEOPLE UNCOMFORTABLE.
 
-i have a pretty small friends list (below 15) so if i have you friended on pt that means i find you cool and we chill ❤️‍🩹❤️‍🩹
-
 im 15 atm!! i dont know what to really add so feel free to ask anything about me !
 
 main interests: msi, forsaken, combat initiation
 
-INT LIST: (fandoms) adventure time, to your eternity, soul eater, combat initiation
+INT LIST: (fandoms) adventure time, to your eternity, soul eater, combat initiation, mob psycho
 
 (music artists) duster, msi, rory in early 20s, duster, sign crushes motorist, did i mention duster
 
