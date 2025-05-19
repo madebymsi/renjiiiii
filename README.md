@@ -2,21 +2,11 @@
   <h1 align="center">hiiiiiiiiiiiiii hiiiiiiiiiiiii hiiiiiiiiiiiii</h1>
 </div>
 
-upd 28/04/25
-
 INTERACT WITH CAUTION, MY HUMOUR CAN MAKE SOME PEOPLE UNCOMFORTABLE.
 
-im 15 atm!! i dont know what to really add so feel free to ask anything about me !
+c+h plssplsssplsss
 
-main interests: msi, forsaken, combat initiation
-
-INT LIST: (fandoms) adventure time, to your eternity, soul eater, combat initiation, mob psycho
-
-(music artists) duster, msi, rory in early 20s, duster, sign crushes motorist, did i mention duster
-
-if ur a stranger idm c+h just ask first please, for friends OHHY EAHHHHHHHHHHH CMERE
-
-you can take inspos off my skins just not HEAVY inspo or full on copying.
+main interests: msi, forsaken, combat initiation, duster.
 
 
-ive noticed i have a social awareness of a potato and that i suck at carrying the convo im sorry if im boring to talk to, im actively trying my best to seem less uninteresting and immature, im really socially awkward at first so mybad if i make it weird ^_^;
+ive noticed i have a social awareness of a potato and that i suck at carrying the convo im sorry if im boring to talk to, im actively trying my best to seem less uninteresting and immature, im really socially awkward at first so mybad if i make it weird ^_^; i get nervous easily if theres a 3rd person that idk (mainly just oomfs friends)
